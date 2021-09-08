@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @StephenQuansah
 - 👀 I’m interested in African politics, women and politics, Good governancc and democracy, political institutions 
-- 🌱 I’m currently teaching and research assistant at Kwame Nkrumah university of science and technology 
+- 🌱 I’m currently a teaching and research assistant at Kwame Nkrumah university of science and technology 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
